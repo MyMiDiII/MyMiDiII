@@ -10,7 +10,7 @@
 </p>
 
 <p>
-<a href="https://yoomoney.ru/to/4100117939364815">
+<a href="https://boosty.to/mymidiii/donate">
   <img src="./imgs/ButMeaCoffee.png" width="25%"/> 
 </a>  
 </p>
